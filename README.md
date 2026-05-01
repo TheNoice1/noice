@@ -2,7 +2,7 @@
 ### ME!!
 <img src="https://i.pinimg.com/736x/bf/15/26/bf1526e61b5087ddb23eaf7e79179fe0.jpg" alt="Story Pin image"/>
 
-I AM LEAFY, LEAFY IS ME. I like to draw and stuffs.
+I AM LEAFY, LEAFY IS ME. I like to draw and stuffs. I ya wanna talk, go ahead and do so. I NEVER start conversations meself so that's on ya.
 
 
 
